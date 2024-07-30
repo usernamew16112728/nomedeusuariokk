@@ -1,3 +1,0 @@
-
-# nomedeusuariokk
-Opcional
